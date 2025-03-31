@@ -1,6 +1,5 @@
 # 💫 About Me:
 PASSIONATE WEB DEVELOPER
-COLLEGE STUDENT 2ND YEAR
 
 
 ## 🌐 Socials:
